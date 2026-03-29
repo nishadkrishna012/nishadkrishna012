@@ -26,8 +26,7 @@
 ---
 
 ## 📫 Contact Me
-- 📧 Email: your-email@example.com  
-- 📱 Phone: Your Number  
+- 📧 Email: nishdkrishna012@gmail.com 
 
 ---
 
