@@ -1,4 +1,4 @@
-# Hi there 👋, I'm Krishna Nishad
+# I'm Krishna Nishad
 
 🎓 B.Tech CSE Core Student at VIT Bhopal University  
 📌 Reg No: 25BCE11329  
